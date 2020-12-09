@@ -1,2 +1,2 @@
-# ozlemozkaya.google.com
+# ozlemozkaya.net
 Gelişim ve paylaşım
