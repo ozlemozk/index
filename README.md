@@ -1,1 +1,1 @@
-Gelişim ve paylaşım
+Gelişim ve paylaşım blog 
