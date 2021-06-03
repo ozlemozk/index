@@ -1,1 +1,1 @@
-Gelişim ve paylaşım blog 
+Development and sharing blog
